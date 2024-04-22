@@ -1,3 +1,4 @@
+https://www.youtube.com/watch?v=jFlBq51Y0_U
 
 # Inspiration
 Our inspiration for working on Klatch stems from a deep-seated belief in financial inclusion and social impact. We've witnessed firsthand the disparities in access to real estate investment opportunities and the profound impact it has on communities. By creating Klatch, we aim to break down barriers, allowing everyone, regardless of financial means, to participate in real estate ownership. Our passion lies in harnessing the power of collective action to not only generate wealth but also to drive positive change and create stronger, more resilient communities for future generations.
